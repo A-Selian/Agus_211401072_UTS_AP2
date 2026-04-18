@@ -1,3 +1,5 @@
+Izin kak, untuk video nya belum bisa saya upload dikarenakan ruang penyimpanan GDrive saya sudah terlalu penuh dan tidak bisa melakukan upload
+
 # 📢 Pengumuman UTS AP2
 
 Halo adik-adik AP2! 👋  
